@@ -1,1 +1,0 @@
-# manojgowda.github.io
